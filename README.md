@@ -1,0 +1,1 @@
+# wymshohoku.github.io
